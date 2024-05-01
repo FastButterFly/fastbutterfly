@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with ???
 - 💬 Ask me about Anything
 - 📫 How to reach me: ;)
-- 😄 Pronouns: he/his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm from Poland 🇵🇱
